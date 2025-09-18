@@ -21,3 +21,5 @@ Also, keep an eye out for Dark Matter darknet mirrors. These alternative links p
 Remember, anonymity is crucial in these spaces. Always use a VPN and anonymous payment methods to shield your privacy and data. Explore Darkmatterdarknet.net for potential access points.
 
 <a href="http://ytbzy2nljonwcp76o4yyccmrv64ysbjejnwtnpumqcrlkoa7pmpomeqd.onion"><img src="/image/glance.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://ytbzy2nljonwcp76o4yyccmrv64ysbjejnwtnpumqcrlkoa7pmpomeqd.onion"><img src="/image/final.webp" alt="image" style="max-width: 100%;"><a>
+
+Update:  18.09.2025 Link is now clickable
