@@ -22,4 +22,6 @@ Remember, anonymity is crucial in these spaces. Always use a VPN and anonymous p
 
 <a href="http://ytbzy2nljonwcp76o4yyccmrv64ysbjejnwtnpumqcrlkoa7pmpomeqd.onion"><img src="/image/glance.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://ytbzy2nljonwcp76o4yyccmrv64ysbjejnwtnpumqcrlkoa7pmpomeqd.onion"><img src="/image/final.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  18.09.2025 Link is now clickable
+
+
+Update:  Wednesday 01 October 2025 TOR URLs updated
